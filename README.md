@@ -1,0 +1,1 @@
+# McDonald-s-case_study_Market_segment_Analysis
